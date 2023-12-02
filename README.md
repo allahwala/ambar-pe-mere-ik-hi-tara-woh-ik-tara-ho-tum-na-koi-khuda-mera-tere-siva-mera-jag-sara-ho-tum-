@@ -1,0 +1,1 @@
+# ambar-pe-mere-ik-hi-tara-woh-ik-tara-ho-tum-na-koi-khuda-mera-tere-siva-mera-jag-sara-ho-tum-
